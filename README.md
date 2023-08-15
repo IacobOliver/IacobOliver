@@ -1,4 +1,12 @@
-### Hi there 👋
+### Hi there 👋 I'm Oliver !
+
+I am mostly a calm, funny, and active person. I enjoy sports, anime, and video games, and I've had a strong passion for programming since high school.
+
+##Skill Set
+![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/1546a19b-77dc-4f08-9e4a-6e73b049bde5) ![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/0a402c56-490e-429a-afed-08919877b1b3)
+
+
+
 
 <!--
 **IacobOliver/IacobOliver** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
