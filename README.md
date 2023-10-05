@@ -16,7 +16,7 @@ I am mostly a calm, funny, and active person. I enjoy sports, anime, and video g
 
 
 
- ### 🌱 I’m currently learning PHP, Spring Boot, Security and Doker
+ ### 🌱 I’m currently learning PHP, Tailwind  , Spring Boot, Security and Doker
  
  ### 🔭 I’m currently working on my styling and responsive skills, and mastering the relations between relational databases
 
