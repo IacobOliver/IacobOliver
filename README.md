@@ -20,7 +20,7 @@ I am mostly a calm, funny, and active person. I enjoy sports, anime, and video g
  
  ### 🔭 I’m currently working on my styling and responsive skills, and mastering the relations between relational databases
 
- ### I want to learn TypeScript
+ ### 🦾 I want to learn TypeScript
 
  ### Other specific things that i enjoy -> 
   - bike rides
