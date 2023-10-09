@@ -9,7 +9,8 @@ I am mostly a calm, funny, and active person. I enjoy sports, anime, and video g
 
 
 ![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/1546a19b-77dc-4f08-9e4a-6e73b049bde5) ![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/de9c3fb1-6961-461a-a90a-a5763fd1eb77)
- ![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/0a402c56-490e-429a-afed-08919877b1b3)![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/85d58b73-8eed-4b0e-805b-6d64f22dca48)
+ ![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/0a402c56-490e-429a-afed-08919877b1b3)![image](https://github.com/IacobOliver/IacobOliver/assets/119490133/c1c1d8fe-0aea-477b-8a87-8933ee050656)
+
 
 
 
